@@ -1,2 +1,0 @@
-# Chamocalipsis
-Juego Angurrioso
